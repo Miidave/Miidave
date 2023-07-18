@@ -2,7 +2,7 @@
 - 👀 I’m interested in getting smarter
 - 🌱 I’m currently learning anything possible.
 - I started with reading and now i want to expand my horizon. If you have any question just ask! I dont bite 
-- 📫 How to reach me: Twitter: Howfarweget or Insta: 37_david_ 
+- 📫 How to reach me: Twitter: @Howfarweget or Insta: 37_david_ 
 
 <!---
 Miidave/Miidave is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

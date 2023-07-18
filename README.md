@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Miidave
 - 👀 I’m interested in getting smarter
 - 🌱 I’m currently learning anything possible.
-- I started with reading and now i want to expand my horizon. If you have any question just ask! I dont bite XD
+- I started with reading and now i want to expand my horizon. If you have any question just ask! I dont bite 
 - 📫 How to reach me: Twitter: Howfarweget or Insta: 37_david_ 
 
 <!---
